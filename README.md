@@ -1,7 +1,5 @@
+https://github.com/user-attachments/assets/0a91e2d3-4bc7-4e73-a926-0fe547a7c42b
 
-
-
-https://github.com/user-attachments/assets/170237ee-00ba-4e43-b56d-68148eb4d54a
 
 
 ## NewsZap (News⚡)
